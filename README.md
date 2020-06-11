@@ -13,7 +13,7 @@ The gifts that I will bring to the role of a developer are that I connect with a
 My future goals are to use these new skills to build and develop some new projects to better my local community.
 
 [Link](url) and ![Image](https://drive.google.com/file/d/0B-qD_uZiCLj5aVRCZEZsdFc0Mnc/view?usp=sharing)
-```
+
 
 
 ### Why the TKH Innovation 
